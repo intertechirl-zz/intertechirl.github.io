@@ -1,1 +1,0 @@
-# intertechirl.github.io
